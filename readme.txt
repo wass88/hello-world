@@ -1,2 +1,2 @@
-Hoge
 Welcome to Yokoso Japaripark!
+＼(^o^)／
